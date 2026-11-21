@@ -1,4 +1,4 @@
-<h1><strong>What Drinks May Help Burn Fat Naturally?</strong></h1>
+<h1><strong>What Fruits May Help Burn Fat Naturally?</strong></h1>
 <p><em><span style="font-weight: 400;">This article is general information, not medical advice. Talk to a doctor or registered dietitian before changing your diet or starting any supplement, especially if you take medicine, have diabetes or another health condition, are pregnant or nursing, or are under 18.</span></em></p>
 <p><span style="font-weight: 400;">No fruit literally burns fat.&nbsp;</span></p>
 <p><span style="font-weight: 400;">What fruit does well is fill you up on a few calories, thanks to its water and fiber, which makes eating less easier to stick with.&nbsp;</span></p>
